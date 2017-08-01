@@ -1,12 +1,12 @@
 # Study
 y
 
-asdfadf
+assdfdfadf
 111111111111111
 23324224
 
 
 adsf
-으으으으응?
+으으우으으응?
 
 aaaaaa
